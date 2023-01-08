@@ -1,2 +1,0 @@
-# hoangnewbie
-hoang
